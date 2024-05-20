@@ -149,6 +149,7 @@ calibration_project/
 
 **Mark William Nkugwa**
 - Email: nkugwamarkwilliam@gmail.com
+- Phone: +256788098058
 - GitHub: github.com/mark-nkugwa/calibration-engineering
 
 ---

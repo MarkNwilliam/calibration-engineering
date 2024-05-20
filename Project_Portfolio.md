@@ -2,7 +2,7 @@
 
 **Mark William Nkugwa**
 Chemical Engineer | Calibration Specialist
-nkugwamarkwilliam@gmail.com | +256 XXX XXX XXX
+nkugwamarkwilliam@gmail.com | +256788098058
 
 ---
 

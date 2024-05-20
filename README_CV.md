@@ -2,7 +2,7 @@
 
 **Repository:** [github.com/mark-nkugwa/calibration-engineering](https://github.com/mark-nkugwa/calibration-engineering)
 **Author:** Mark William Nkugwa | Chemical Engineer
-**Contact:** nkugwamarkwilliam@gmail.com
+**Contact:** nkugwamarkwilliam@gmail.com | +256788098058
 
 ## Project Overview
 

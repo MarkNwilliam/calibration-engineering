@@ -1,5 +1,5 @@
 # MARK WILLIAM NKUGWA
-nkugwamarkwilliam@gmail.com | +256 XXX XXX XXX | Kampala, Uganda
+nkugwamarkwilliam@gmail.com | +256788098058 | Kampala, Uganda
 
 August 19, 2026
 

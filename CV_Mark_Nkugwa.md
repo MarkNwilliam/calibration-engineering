@@ -1,7 +1,7 @@
 # MARK WILLIAM NKUGWA
 Chemical Engineer
 
-nkugwamarkwilliam@gmail.com | +256 XXX XXX XXX | Kampala, Uganda | GitHub: mark-nkugwa
+nkugwamarkwilliam@gmail.com | +256788098058 | Kampala, Uganda | GitHub: mark-nkugwa
 
 ## PROFESSIONAL SUMMARY
 
